@@ -46,7 +46,7 @@ III. **The Biblical Decoder** — Ancient wisdom through the framework (Restruct
 
 ### **Supplemental Documents**
 
-I. **Secret Societies and the Occult — The pattern in esoteric symbology (Reformatting)**
+I. **Secret Societies and the Occult** — The pattern in esoteric symbology (Reformatting)
 
 II. **Emergence Guide** — For those becoming
 
